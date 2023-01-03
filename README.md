@@ -1,6 +1,5 @@
 ### Olá!Eu Me chamo william Gulart borba🦸
 
-![Linkedlin](https://img.shields.io/badge/LinkedIn-0077B5?style=for-the-badge&logo=linkedin&logoColor=whitehttps://www.linkedin.com/in/william-gulart-borba-bba863180/)
 
 
 
